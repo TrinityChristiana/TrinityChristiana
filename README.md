@@ -6,7 +6,7 @@
 ---  
   
 
-Hi there! I'm Trinity Christiana, a 22-year-old technical polymath and Nashville native. I wish to exemplify to Black youth that becoming tech creators and earning six figures is possible before the age of 25. Since I was little my passion for tech showed through helping my brother learn the ins and outs of the family’s Leapster, being in the family IT department when it came to the features of every new phone, to now building full-fledged applications. 
+Hi there! I'm Trinity Christiana, a technical polymath in her 20s and Nashville native. I wish to exemplify to Black youth that becoming tech creators and earning six figures is possible before the age of 25. Since I was little my passion for tech showed through helping my brother learn the ins and outs of the family’s Leapster, being in the family IT department when it came to the features of every new phone, to now building full-fledged applications. 
 
 My tech journey skyrocketed when I began college in high school by attending middle college high school in Nashville Tennessee. There, I was able to graduate at the age of 16 and decided to stay at Nashville State Community College to pursue my associate of science in computer technology. 
 
